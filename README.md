@@ -1,10 +1,8 @@
-- 👋 Hi, I’m FangXinYi AKA RachelAmber
+- 👋 Hi, I’m  RachelAmber AKA Fangsinging
 - 🧗🏔️🤿 I’m interested in every single Xtreme sports...my greatest dream is the top of K2 Qogir.Karakoram Range.
-- 🌱 I’m currently learning Biochemistry at smith college in Massachusetts 
-- 💞️ ...
-- 📫 How to reach me ...Rachelamber@smith.edu.au
-- 😄 Pronouns: bisexual bipolar-disorder bitch
-- ⚡ Fun fact: travel 10 countries alone at 17 included iran.iraq so on...
+  currently learning Biochemistry in Massachusetts 
+- Pronouns: bisexual bipolar-disorder bitch
+- Fun fact: travel 10 countries alone at 17 included iran.iraq so on...
 
 <!---
 RachelamberJoe/RachelamberJoe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
